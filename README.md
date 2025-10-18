@@ -1,8 +1,7 @@
 - 👋 Hi, I’m @simpleitkeep
 - 👀 I’m interested in understanding new phenomenons
 - 🌱 I’m an entrepreneur
-- 💞️ I’m looking to collaborate on trading algorithms
-- 📫 deepmaangat@gmail.com
+- 📫 promotmaangat@gmail.com
 - 😄 Pronouns: He
 - ⚡ Fun fact: If you are sinking, become a submarine 
 
